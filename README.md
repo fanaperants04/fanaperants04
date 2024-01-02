@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @fanaperants04
+- 👀 I’m interested in coding with new language
+- 🌱 I’m currently learning different type of framework
+- 💞️ I’m looking to collaborate on entreprise
